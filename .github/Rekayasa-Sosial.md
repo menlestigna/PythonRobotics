@@ -1,0 +1,50 @@
+Penyelesaian masalah kesehatan lingkungan dengan rekayasa sosial dan penggunaan teknologi tepat guna itu dijelaskan dalam penelitian Profesor Riset Bidang Kesehatan Lingkungan Dr. Dede Anwar Musadad, SKM., M.Kes tentang Rekayasa Sosial dan Teknologi Tepat Guna untuk Penyelesaian Masalah Sanitasi.
+ 
+**Download Zip ••• [https://eninlili.blogspot.com/?file=2A0PWR](https://eninlili.blogspot.com/?file=2A0PWR)**
+
+
+ 
+Anwar, sapaan Dede Anwar Musadad, menjelaskan menurut Teori Blum faktor paling dominan yang mempengaruhi status kesehatan masyarakat adalah faktor lingkungan, disusul oleh faktor perilaku, pelayanan kesehatan dan faktor keturunan (herediter).
+ 
+Anwar menambahkan rekayasa sosial adalah upaya mempengaruhi sikap dan perilaku sosial baik oleh pemerintah atau kelompok swasta. Rekayasa sosial dilakukan melalui Methodology Participatory Assessment, Participatory Hygiene and Sanitation Transformation (MPA-PHAST) dan pendekatan budaya.
+ 
+MPA-PHAST merupakan suatu metodologi untuk membantu masyarakat, pelaksana program dan pengambil keputusan untuk mencapai keberlanjutan dan pemerataan pelayanan juga untuk mengidentifikasi dan menemukan solusi permasalahan hygiene dan sanitasi.
+
+Rekayasa sosial diawali dengan pemotretan kondisi kesehatan lingkungan sebagai bahan diskusi dengan masyarakat terdampak. Fakta diolah, dianalisis, dan disampaikan kembali kepada masyarakat melalui pertemuan yang dihadiri para tokoh masyarakat, tokoh agama, dan aparat desa.
+ 
+Pemicuan sosial telah menambah pemahaman pedagang makanan jajanan dan pengusaha produsen bahan makanan tentang PHBS, sanitasi makanan, dan kerugian ekonomi akibat pengelolaan makanan tidak saniter. Pola kemitraan yang terjadi saling menguntungkan bagi pedagang makanan jajanan dan produsen bahan makanan, dan menjamin makanan sehat bagi konsumen.
+ 
+Anwar menjelaskan secara umum teknologi tepat guna (TTG) merupakan pilihan teknologi dan aplikasinya yang mempunyai kegunaan menyelesaikan masalah setempat, skala relatif kecil, hemat energi, bahan bakunya mudah diperoleh, sederhana dan sesuai dengan kondisi masyarakat lokal. TTG yang digunakan dapat dikembangkan sendiri atau mendayagunakan teknologi yang sudah ada.
+ 
+Teknologi sederhana yang diperkenalkan kepada pedagang makanan berupa celemek, sarung tangan dan tutup kepala mampu mengubah perilaku dalam mengelola makanan secara higienis. Teknologi jamban pasang surut, penjernihan air sederhana dan pemasangan ventilasi pada rumah adat menjadi contoh alternatif teknologi tepat guna pemecahan masalah sanitasi di daerah terpencil dan pinggir sungai.
+ 
+Menteri Kesehatan RI Nila Moeloek mengaku mendukung pernyataan Profesor Anwar bahwa program kesehatan lingkungan perlu akselerasi melalui rekayasa sosial yang disertai penerapan teknologi tepat guna.
+ 
+Sehat Negeriku adalah kanal berbagi informasi tentang kegiatan Kementerian Kesehatan, baik berupa rilis yang dikeluarkan Kemenkes, dokumentasi foto dan video, maupun tulisan ringan seputar info-info kesehatan. 
+
+ 
+Rekayasa sosial adalah praktik manipulasi atau pengaruh yang dilakukan oleh individu atau kelompok untuk mempengaruhi pikiran, perilaku, dan tindakan orang lain dengan cara yang menguntungkan pihak pelaku rekayasa sosial. Tujuan dari rekayasa sosial bisa bermacam-macam, termasuk mendapatkan akses ke informasi rahasia, meraih keuntungan finansial, mendapatkan persetujuan atas suatu tindakan, atau mencuri data pribadi.
+ 
+Rekayasa sosial seringkali digunakan dalam konteks keamanan siber atau kejahatan siber, di mana pelaku berusaha untuk mengelabui atau memanipulasi orang lain agar memberikan informasi rahasia seperti kata sandi, nomor kartu kredit, atau data penting lainnya. Metode rekayasa sosial dapat berupa percobaan phishing melalui email atau panggilan telepon palsu yang menyamar sebagai lembaga resmi atau organisasi yang dapat dipercayai.
+ 
+Namun, rekayasa sosial tidak hanya terbatas pada domain keamanan siber. Praktik ini juga dapat digunakan dalam berbagai bidang seperti politik, pemasaran, dan hubungan antarpribadi. Contohnya adalah kampanye politik yang menggunakan pesan yang dipersonalisasi untuk mempengaruhi opini masyarakat, atau strategi pemasaran yang dirancang untuk membuat konsumen tertarik pada produk tertentu melalui manipulasi emosi.
+ 
+Rekayasa sosial seringkali mengandalkan eksploitasi kelemahan manusia seperti rasa ingin tahu, kepercayaan, rasa takut, atau perasaan simpati. Oleh karena itu, kesadaran akan taktik rekayasa sosial dan pentingnya mengamankan informasi pribadi menjadi penting untuk melindungi diri dari potensi penipuan atau kejahatan yang melibatkan manipulasi manusia.
+ 
+**Rekayasa sosial** (bahasa Inggris: *social engineering* atau disingkat *soceng*) memiliki dua arti yang berbeda, hal ini bisa diartikan sebagai penggunaan perencanaan terpusat dalam upaya untuk mengelola perubahan sosial dan mengatur perkembangan masa depan dan perilaku masyarakat. Tetapi bisa juga menjadi manipulasi psikologis dari seseorang dalam melakukan aksi atau menguak suatu informasi rahasia. Rekayasa sosial umumnya dilakukan melalui telepon atau Internet. Rekayasa sosial merupakan salah satu metode yang digunakan oleh peretas untuk memperoleh informasi tentang targetnya, dengan cara meminta informasi itu langsung kepada korban atau pihak lain yang mempunyai informasi itu.
+ 
+Rekayasa sosial mengkonsentrasikan diri pada rantai terlemah sistem jaringan komputer, yaitu manusia. Tidak ada sistem komputer yang tidak melibatkan interaksi manusia. Dan parahnya lagi, celah keamanan ini bersifat universal, tidak tergantung platform, sistem operasi, protokol, perangkat lunak, ataupun perangkat keras. Artinya, setiap sistem mempunyai kelemahan yang sama pada faktor manusia. Setiap orang yang mempunyai akses kedalam sistem secara fisik adalah ancaman, bahkan jika orang tersebut tidak termasuk dalam kebijakan kemanan yang telah disusun. Seperti metode peretasan yang lain, rekayasa sosial juga memerlukan persiapan, bahkan sebagian besar pekerjaan meliputi persiapan itu sendiri.
+ 
+Pada banyak referensi, faktor manusia dinilai sebagai rantai paling lemah dalam sebuah sistem keamanan. Sebuah sistem keamanan yang baik, akan menjadi tidak berguna jika ditangani oleh administrator yang kurang kompeten. Selain itu, biasanya pada sebuah jaringan yang cukup kompleks terdapat banyak user yang kurang mengerti masalah keamanan atau tidak cukup peduli tentang hal itu. Ambil contoh di sebuah perusahaan, seorang admin jaringan sudah menerapkan kebijakan keamanan dengan baik, namun ada pengguna yang mengabaikan masalah kemanan itu. Misalnya pengguna tersebut menggunakan kata sandi yang mudah ditebak, lupa log keluar ketika pulang kerja, atau dengan mudahnya memberikan akses kepada rekan kerjanya yang lain atau bahkan kepada kliennya. Hal ini dapat menyebabkan seorang penyerang memanfaatkan celah tersebut dan mencuri atau merusak data-data penting perusahaan. Membuang sampah yang bagi kita tidak berguna, dapat dijadikan orang yang berkepentingan lain. Misal: slip gaji, slip atm. Barang tersebut kita buang karena tidak kita perlukan, namun ada informasi di dalamnya yang bisa dimanfaatkan orang lain.
+ 
+Atau pada kasus di atas, seorang penyerang bisa berpura-pura sebagai pihak yang berkepentingan dan meminta akses kepada salah satu pengguna yang ceroboh tersebut. Tindakan ini digolongkan dalam rekayasa sosial.
+ 
+Metode pertama adalah metode yang paling dasar dalam rekayasa sosial, dapat menyelesaikan tugas penyerang secara langsung yaitu, penyerang tinggal meminta apa yang diinginkannya: kata sandi, akses ke jaringan, peta jaringan, konfigurasi sistem, atau kunci ruangan. Memang cara ini paling sedikit berhasil, tapi bisa sangat membantu dalam menyelesaikan tugas penyerang.
+ 
+Cara kedua adalah dengan menciptakan situasi palsu di mana seseorang menjadi bagian dari situasi tersebut. Penyerang bisa membuat alasan yang menyangkut kepentingan pihak lain atau bagian lain dari perusahaan itu, misalnya. Ini memerlukan kerja lanjutan bagi penyerang untuk mencari informasi lebih lanjut dan biasanya juga harus mengumpulkan informasi tambahan tentang target. Ini juga berarti kita tidak harus selalu berbohong untuk menciptakan situasi tesebut, kadang kala fakta-fakta lebih bisa diterima oleh target.
+ 
+Sebagai contoh seperti ini: seorang berpura-pura sebagai agen tiket yang menelepon salah satu pegawai perusahaan untuk konfirmasi bahwa tiket liburannya telah dipesan dan siap dikirim. Pemesanan dilakukan dengan nama serta posisi target di perusahaan itu, dan perlu mencocokkan data dengan target. Tentu saja target tidak merasa memesan tiket, dan penyerang tetap perlu mencocokkan nama, serta nomor pegawainya. Informasi ini bisa digunakan sebagai informasi awal untuk masuk ke sistem di perusahaan tersebut dengan akun target. Contoh lain, bisa berpura-pura sedang mengadakan survei perangkat keras dari vendor tertentu, dari sini bisa diperoleh informasi tentang peta jaringan, perute, firewall, atau komponen jaringan lainnya.
+ 
+Cara-cara tersebut biasanya melibatkan faktor personal dari target: kurangnya tanggung jawab, ingin dipuji dan kewajiban moral. Kadang target merasa bahwa dengan tindakan yang dilakukan akan menyebabkan sedikit atu tanpa efek buruk sama sekali. Atau target merasa bahwa dengan memenuhi keinginan penyerang yang berpura-pura akan membuat dia dipuji atau mendapat kedudukan yang lebih baik. Atau dia merasa bahwa dengan melakukan sesuatu akan membantu pihak lain dan itu memang sudah kewajibannya untuk membantu orang lain. Jadi kita bisa fokuskan untuk membujuk target secara sukarela membantu kita, tidak dengan memaksanya. Selanjutnya kita bisa menuntun target melakukan apa yang kita mau, target yakin bahwa dirinya yang memegang kontrol atas situasi tersebut. Target merasa bahwa dia membuat keputusan yang baik untuk membantu kita dan mengorbankan sedikit waktu dan tenaganya.
+ 
+Riset psikologi juga menunjukkan bahwa seseorang akan lebih mudah memenuhi k
